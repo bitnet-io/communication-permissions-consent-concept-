@@ -31,5 +31,5 @@ or a channel 2fa pin
 
 
 
-
+think robinhood block screenshot (but this would work if the pin had a consent with two people talking in private message)
  
