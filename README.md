@@ -1,0 +1,1 @@
+# communication-permissions-consent-concept-
